@@ -1,6 +1,6 @@
 ![image](https://github.com/MayankBhatt0707/IPL-Analysis/assets/117582973/4c8de910-906a-4bab-8f21-02344d5378f7)
 
-![image](https://github.com/MayankBhatt0707/IPL-Analysis/assets/117582973/b8f01f17-3b1f-4871-95a9-bef81369b441)
+![image](https://github.com/MayankBhatt0707/IPL-Analysis/assets/117582973/932a974e-a6de-44f0-8446-8a2b061e05a6)
 
 ![image](https://github.com/MayankBhatt0707/IPL-Analysis/assets/117582973/d3e31e72-3635-40b2-bf05-39f1de049c1f)
 
